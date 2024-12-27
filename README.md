@@ -34,6 +34,7 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - The best dirt to use it [PH Pro Mix](https://www.pthorticulture.com/en-us/products/pro-mix-hp-mycorrhizae).
  - Optionally you can use any aerated dirt.
  - If the mix you get does not have [Pearlite](https://a.co/d/hRI8myV) or [Mycorrhizae](https://a.co/d/87OXRf9), then you need to get those as well.
+ - You will want [Worm Castings](https://a.co/d/2gGIPZO) or any other animal waste to help boost the plants growth.
  - Be sure to mix everything, you do not want clumps in the dirt when you plant the seeds.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
@@ -42,7 +43,10 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - For your plant to grow as healthy as it can during the Vegging Stage, you will want to use [Gaia Green All Purpose](https://a.co/d/iAh2A5G), or any approved 4-4-4 mix.
  - For the Flowering Stage you will want to use [Gaia Green Power Bloom](https://a.co/d/1zMfADi), or any approved 2-8-4 mix.
  - You will want to flush your plant of all nutrients before harvest, meaning water it without giving it any nutrients for the last 3-4 weeks of flower.
+ - You will also want to use [Worm Castings](https://a.co/d/2gGIPZO) or any other animal waste for every feeding, this will boost plant growth.
  - You do not want to use liquid or synthetic nutrients, that can lead to nutrient burn in your plant, and can often lead to the plant just dying completely.
+ - Feed your plants the recommended ammount on the package, every 4 weeks.
+ - Do not feet your for the last 4-6 weeks of flower.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
