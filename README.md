@@ -99,6 +99,7 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - You want to check the plant every few days so it doesnt get too dry, that will ruin the flavor, so will drying too fast, air drying is the best method.
  - You know the weed is ready to trim and put into jars or bags when all of the thin stems snap when you bend them, instead of just bending, you will hear a snap.
  - Cut off all the leaves, and stems, and put your weed in a safe place to store it.
+ - For the best flavor, smoke, and high from your weed, you will want to make the drying time last between 12-16 days, you might need a small humidifier on the other end of the room to do that.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
