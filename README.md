@@ -18,7 +18,7 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - When To Harvest
  - How To Harvest & Dry
  - How To Cure
- - Stress $ Males
+ - Stress & Males
  - Pollen Sacs
  - Nanners
 
@@ -148,7 +148,7 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
-# Stress $ Males
+# Stress & Males
  - If you stress your plant enough, it will become a hermaphrodite (both male and female).
  - Once a plant goes hermaphrodite, you can not let the pollen get into your other buds or plants, unless you want them to be filled with seeds.
  - A male weed plant will not grow buds, it will only grow pollen sacks, and a hermaphrodite can grow nanners.
