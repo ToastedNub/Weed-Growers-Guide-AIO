@@ -12,6 +12,8 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - Indoor Equipment (TENTS)
  - Vegging & Flowering Control
  - Cloning
+ - Training
+ - Pruning
  - When To Harvest
  - How To Harvest & Dry
  - How To Cure
@@ -84,6 +86,24 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - Wait a few days for the stem to grow small roots.
  - Plant the stem in a pot of dirt.
  - This wont always work, it's best to do it with at least 2 stems, it will almost always work, but it's also easy to over stress the new stem.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Training
+ - Wait until your plant is tall enough, it needs to have 3-4 nodes.
+ - You will see a little leaf at the very top of each top branch, cut those off before they grow into a stem, this will make it grow as 2 stems instead of 1.
+ - You can do this to the same stems each time the leaves grow back, and the stems will multiply each time.
+ - Once multiple stems grow out of a spot you cut, you can cut the leaves on the top of those stems when they're big enough, to make them grow more as well.
+ - If you train a plant too much, it will need to be pruned or it will go moldy, or some branches will die during flower from lack of airflow and light.
+ - Training is best for indoor plants, because that way you can control when your plant will flower entirely.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Pruning
+ - You want to cut off any suckers (the main stem will grow branches off of it, you dont want a third stem coming out between the main stem and a branch).
+ - [Optionally you can cut off all the lower leaves, and leave only the top ones](https://www.royalqueenseeds.com/img/cms/flowering_1.jpg), do this a few weeks before flower, this will make it grow less buds, but they will be bigger, and if you trained it properly, it will actually grow more than it would normally by doing this.
+ - Pruning is best for indoor plants, because that way you can control when your plant will flower entirely.
+ - Don't prune too much too fast, you can stunt your plants growth, meaning it will stop all growth until it's no longer stressed.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
