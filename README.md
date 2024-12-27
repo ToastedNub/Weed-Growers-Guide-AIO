@@ -170,6 +170,7 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - Pollen sacs are part of the male plant, basically the penis of the plant, these store pollen to later be released during flower.
  - Nanners will mainly grow on a plant for 1 reason, that reason is that a plant nearby had pollen sacs, and the nanners are a result of getting pollenated.
  - A nanner will not open, but they are not hard to miss, they look like bananas.
+ - You should cut these off if you ever see them on a female plant.
  - [Image 1](https://www.growweedeasy.com/wp-content/uploads/2017/10/hermie-nanner-looking-all-like-a-banana.jpg)
  - [Image 2](https://2fast4buds.com/temp/img_upload/bg_14309220535eccf6f205989148137dd1.jpg)
  - [Image 3](https://2fast4buds.com/static/img/f9a575d3412dd3d53d486f53051f8048.jpg)
