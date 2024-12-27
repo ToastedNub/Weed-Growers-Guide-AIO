@@ -1,0 +1,2 @@
+# Weed-Growers-Guide-AIO
+WEED IS ENTIRELY LEGAL WHERE I LIVE
