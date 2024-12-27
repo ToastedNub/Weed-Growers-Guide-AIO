@@ -21,6 +21,7 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - Stress & Males
  - Pollen Sacs
  - Nanners
+ - Plant Staging
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -174,3 +175,14 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - [Image 1](https://www.growweedeasy.com/wp-content/uploads/2017/10/hermie-nanner-looking-all-like-a-banana.jpg)
  - [Image 2](https://2fast4buds.com/temp/img_upload/bg_14309220535eccf6f205989148137dd1.jpg)
  - [Image 3](https://2fast4buds.com/static/img/f9a575d3412dd3d53d486f53051f8048.jpg)
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Plant Staging
+ - [Germination](https://sensiseeds.com/blog/wp-content/uploads/2024/07/Seedling-Phase-in-Cannabis-Plants-scaled.jpg)
+ - [Sprout](https://phoenixseedsandclones.com/wp-content/uploads/2022/04/weed-seedlings-care-guide.jpg)
+ - [Seedling](https://upload.wikimedia.org/wikipedia/commons/thumb/1/11/Young_cannabis_plant_in_the_vegetative_stage_01.jpg/220px-Young_cannabis_plant_in_the_vegetative_stage_01.jpg)
+ - [Veg](https://i0.wp.com/growithjane.com/wp-content/uploads/2022/08/Vegetative-stage-in-Cannabis-plants-new-Fotos-Aliz-Watermarked-image1.jpg?resize=768%2C1024&ssl=1)
+ - [Flower](https://www.royalqueenseeds.com/modules/prestablog/themes/royalqueenseeds/up-img/1074.jpg)
+ - [Harvest](https://www.growweedeasy.com/wp-content/uploads/2010/05/ready-for-harvest-marijuana-cola.jpg)
+ - [Full Stage](https://greenrushpackaging.com/wp-content/uploads/2021/07/canabis-cycle.jpg)
