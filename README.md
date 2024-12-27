@@ -18,6 +18,9 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - When To Harvest
  - How To Harvest & Dry
  - How To Cure
+ - Stress $ Males
+ - Pollen Sacs
+ - Nanners
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
@@ -142,3 +145,31 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - You want your weed to stay around 58% - 64% humidity, anything over and you will need to take the weed out, and let it dry more first.
  - For the best cure, you will want to keep your weed in a closed jar for 2-4 months, this will make it smell and taste better, along with raise its potency very slightly.
  - You want to keep the jar closed the entire cure, the more you open it, the more you ruin the cure.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Stress $ Males
+ - If you stress your plant enough, it will become a hermaphrodite (both male and female).
+ - Once a plant goes hermaphrodite, you can not let the pollen get into your other buds or plants, unless you want them to be filled with seeds.
+ - A male weed plant will not grow buds, it will only grow pollen sacks, and a hermaphrodite can grow nanners.
+ - Realistically you should kill any hermaphrodite plant, as it's difficult to keep them healthy and keep cutting off the male bits.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Pollen Sacs
+ - Pollen sacs are part of the male plant, basically the balls of the plant, these store pollen to later be released during flower.
+ - The pollen is good for breeding plants, it can also be harvested and frozen to manually breed a plant.
+ - You should cut these off if you ever see them on a female plant.
+ - [Image 1](https://www.growweedeasy.com/wp-content/uploads/2013/03/beautiful-male-plant-pollen.jpg)
+ - [Image 2](https://i.redd.it/lebxbnp7zq361.jpg)
+ - [Image 3](https://www.growweedeasy.com/wp-content/uploads/2019/06/clear-hermie-pic.jpg)
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Nanners
+ - Pollen sacs are part of the male plant, basically the penis of the plant, these store pollen to later be released during flower.
+ - Nanners will mainly grow on a plant for 1 reason, that reason is that a plant nearby had pollen sacs, and the nanners are a result of getting pollenated.
+ - A nanner will not open, but they are not hard to miss, they look like bananas.
+ - [Image 1](https://www.growweedeasy.com/wp-content/uploads/2017/10/hermie-nanner-looking-all-like-a-banana.jpg)
+ - [Image 2](https://2fast4buds.com/temp/img_upload/bg_14309220535eccf6f205989148137dd1.jpg)
+ - [Image 3](https://2fast4buds.com/static/img/f9a575d3412dd3d53d486f53051f8048.jpg)
