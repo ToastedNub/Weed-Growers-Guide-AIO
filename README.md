@@ -10,6 +10,7 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - Nutrients
  - Seeds
  - Indoor Equipment (TENTS)
+ - Planting
  - Vegging & Flowering Control
  - Cloning
  - Training
@@ -68,6 +69,15 @@ WEED IS ENTIRELY LEGAL WHERE I LIVE
  - If you are not able to directly connect the Inline Fan to one of the holes in the tent, then you will need [Inline Tubing](https://a.co/d/dvrgDDD), so the Inline Fan can bring outside air into the tent.
  - You will also need some gind of [LED Grow Light](https://a.co/d/8ablxWW), it doesn't really matter what one, but the higher the wattage, and the more coverage it has, the better.
  - You need grow pots, either fabric or plastic work best, you will also need plant pot trays, these will hold any water spills, I find that 3-5 gallon pots are better for indoor plants.
+
+---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
+
+# Planting
+ - Your seed should be planted about 1cm deep.
+ - Lightly cover your seed with dirt, some seeds will not sprout if they are in any light.
+ - Keep the area where you planted the seed moist, you can keep it more moist by putting a see through plastic cup, or container over it.
+ - When the plant comes up out of the dirt, keep the dirt around it moist for the fitst 1-2 weeks, but do not flood the plant, you want the roots to grow as much as they can as soon as they can.
+ - Once your plant grows its first [Weed Leaves](https://images.squarespace-cdn.com/content/v1/616f6be3d6452d0243ff3cd3/512c1df1-2fc7-451a-8086-209306dd4285/cannabis+germination), this means you can take off any container or cup you had on, the plant will be fine on its own.
 
 ---------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------------
 
